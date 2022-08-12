@@ -1,1 +1,0 @@
-# stickey-ar-paulx5dbcc
